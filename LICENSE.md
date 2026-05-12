@@ -1,4 +1,4 @@
-#  
+#  premium shrink for brainrots Scripts offers the most advanced shrink for brainrots Script, with silent aim and auto-heal. Perfect for dominating any
 
 
 
